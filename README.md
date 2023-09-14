@@ -1,1 +1,3 @@
-# alura-mide
+colegio polivalente
+Angelo Rodrigues
+luana RIbeiro 
